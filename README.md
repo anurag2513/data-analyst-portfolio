@@ -1,7 +1,7 @@
 # 📘 Anurag Sarvankar - Data Analyst Portfolio  
 **Data Analyst | IT Engineer | Power BI & SQL Enthusiast**  
-📍 India | 📧 anurag@email.com | 📞 +91-XXXXXXXXXX  
-[LinkedIn](#) | [GitHub](#)
+📍 India | 📧 anuragsarvan123@gmail.com | 📞 +91-7517619888 
+www.linkedin.com/in/anuragsarvankar 
 
 ---
 
